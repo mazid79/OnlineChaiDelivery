@@ -1,3 +1,4 @@
+![cart](https://github.com/mazid79/OnlineChaiDelivery.github.io/assets/122568589/1a1bff32-c5c2-449f-a250-de5005670cec)
 ![website](https://github.com/mazid79/OnlineChaiDelivery/assets/122568589/89ff57aa-437b-4326-ad4e-289d60848ae0)
 ![mobile2](https://github.com/mazid79/OnlineChaiDelivery/assets/122568589/2d5dcb69-c7ef-4bba-8f8c-ab24f6fdc505)
 ![mobile1](https://github.com/mazid79/OnlineChaiDelivery/assets/122568589/e3ea79fd-b43a-49f8-a5f5-41e2bca447ad)
